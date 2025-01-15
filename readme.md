@@ -41,3 +41,11 @@ This is a well-established contract setup, and I’m confident that with our com
 If this opportunity excites you, let’s connect and discuss further! Together, we can build a strong collaboration and secure rewarding US developer roles.  
 
 ---  
+
+## Contact Info
+
+- Gmail: pookiemoney717@gmail.com
+- Discord: @pookie761124
+- Telegram: @pookie717
+
+---
