@@ -1,6 +1,6 @@
 # Collaboration Opportunity: Secure US Developer Roles Together  
 
-Are you a skilled developer based in North America or Europe looking to break into high-quality contracting roles in the US? I’m looking for a reliable collaborator to work with me on an innovative approach to securing these opportunities.  
+Are you a fluently English speaker based in North America or Europe looking to break into high-quality contracting roles in the US? I’m looking for a reliable collaborator to work with me on an innovative approach to securing these opportunities.  
 
 ## The Idea  
 
