@@ -23,6 +23,9 @@ to find lucrative US-based contracting opportunities.
 - **Meetings & Interviews**: You’ll attend meetings with recruiters, demonstrate your technical expertise, and pass interviews.  
 - **Daily Responsibilities**: After securing a role, you’ll attend daily standups and contribute as a core team member.  
 
+#### Salary:  
+- We can make $3k to $5k a month tax-free.
+
 ### What Happens Next?  
 Once we secure a position:  
 - I’ll hire an additional developer to assist with your workload.  
