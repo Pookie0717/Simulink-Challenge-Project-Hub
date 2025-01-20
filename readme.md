@@ -1,4 +1,5 @@
-This could be your chance to change your life. With fluent English, you can earn $10,000 a month. Yes, you heard that right—big money, just by leveraging your English skills. How?
+# *This could be your chance to change your life. With fluent English, you can earn $10,000 a month. Yes, you heard that right—big money, just by leveraging your English skills. How?*
+
 ---
 
 # **Unlock High-Paying US Developer Roles Together**  
