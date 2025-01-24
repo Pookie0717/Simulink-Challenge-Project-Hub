@@ -1,5 +1,8 @@
 # *This could be your chance to change your life. With fluent English, you can earn $10,000 a month. Yes, you heard that right—big money, just by leveraging your English skills. How?*
 
+Please schedule the meeting via this link.
+**https://calendly.com/raza-1004ali/30min**
+
 # **Unlock High-Paying US Developer Roles Together**  
 
 Are you a fluent English speaker? Want to secure high-quality US contracting roles and earn 10k a month while working remotely? Let’s collaborate and make it happen!  
@@ -49,9 +52,6 @@ Together, we’ll build a winning strategy to break into these roles and create 
 ## **Ready to Start?**  
 
 Let’s connect and discuss this exciting opportunity in detail! Together, we’ll unlock high-paying roles and create a reliable partnership.  
-
-Please schedule the meeting via this link.
-**https://calendly.com/raza-1004ali/30min**
 
 - **Gmail**: raza.1004ali@gmail.com 
 - **Discord**: raza.1004ali 
